@@ -1,2 +1,0 @@
-# githudcuahai
-ngô vũ hải
